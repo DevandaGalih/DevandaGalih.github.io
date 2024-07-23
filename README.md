@@ -1,1 +1,0 @@
-# DevandaGalih.github.io
